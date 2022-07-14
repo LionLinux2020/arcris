@@ -1,6 +1,6 @@
-# [Donaciones / Donations](paypal.me/codigocristo)
+# [Donaciones / Donations](https://www.paypal.com/paypalme/lavozde)
 
-[paypal.me/codigocristo](paypal.me/codigocristo)
+[https://www.paypal.com/paypalme/lavozde](https://www.paypal.com/paypalme/lavozde)
 
 # ArcriS 3.0.2022
 
